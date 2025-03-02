@@ -7,6 +7,5 @@ NaughtyChas更厉害
 ## 关于
 
 > [!IMPORTANT]
-> Paraliesa, 我们__你！
+> Paraliesa, 我们喜欢你！
 > 
-> （下一版去除该行）
